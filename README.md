@@ -29,14 +29,5 @@ Breaking Bad has won numerous awards, including:
 - **2 Golden Globe Awards**
 - **Peabody Award**
 
-It also holds a **99% rating on Rotten Tomatoes** for its final season.
-
-
-### Related Media
-- **Better Call Saul**: A prequel series focusing on Saul Goodman’s backstory.
-- **El Camino**: A movie sequel that delves into Jesse Pinkman’s life after the events of Breaking Bad.
-
-> *"Chemistry is the study of matter. But I prefer to see it as the study of change."*  
-> — Walter White
 
 
